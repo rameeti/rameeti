@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rameeti otherwise known as Robert Ameeti
+- 👀 I’m interested in automation of things. If you are working hard, you are doing it wrong.
+- 🌱 I’m currently learning yet one more language.
+- 💞️ I’m looking to collaborate on projects that have to do with sailing.
+- 📫 How to reach me: robert@ameeti.net
